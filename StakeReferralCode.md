@@ -9,7 +9,7 @@ The **Stake referral code is SHIMA**. Enter this code when registering on Stake.
 - No expiration, no wagering requirements on rakeback
 - Stacks with the Stake VIP program
 
-**Sign up:** stake.com/?c=SHIMA&offer=shima
+**Sign up:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 
 ---
 
@@ -24,13 +24,13 @@ The **Stake referral code is SHIMA**. Enter this code when registering on Stake.
 | Max Bonus | Up to $2,000 |
 | Valid | 2026 |
 | Platform | Stake.com |
-| URL | stake.com/?c=SHIMA&offer=shima |
+| URL | [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima) |
 
 ---
 
 ## How It Works
 
-1. Go to stake.com/?c=SHIMA&offer=shima
+1. Go to [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 2. Click Register
 3. Fill in email, username, password, date of birth
 4. Find the "Code" field at the bottom of the form
