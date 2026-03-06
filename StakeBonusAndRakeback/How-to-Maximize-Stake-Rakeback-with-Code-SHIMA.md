@@ -6,7 +6,7 @@ Rakeback on Stake.com is a cashback system where a percentage of your total wage
 
 Using **Stake referral code SHIMA** activates a permanent **5% rakeback** on all wagers across every game category on the platform.
 
-**Get 5% rakeback now:** stake.com/?c=SHIMA&offer=shima
+**Get 5% rakeback now:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 
 ---
 
@@ -88,7 +88,7 @@ For long-term, regular players, the lifetime value of 5% rakeback vastly exceeds
 
 ## How to Claim the 5% Rakeback
 
-1. Register at stake.com/?c=SHIMA&offer=shima
+1. Register at [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 2. Enter code SHIMA in the Code field during registration
 3. Make your first deposit ($10 minimum)
 4. Start wagering — rakeback activates immediately
@@ -102,6 +102,6 @@ There is nothing else to do. The 5% rakeback runs in the background automaticall
 
 Referral code SHIMA on Stake.com delivers the most valuable rakeback available to new players in 2026: a permanent 5% on all wagering with no strings attached. Combined with the 200% deposit bonus and the Stake VIP program, it creates a total return package that stands unmatched in the crypto casino space.
 
-**Start earning rakeback:** stake.com/?c=SHIMA&offer=shima
+**Start earning rakeback:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 
 > Disclaimer: Gambling involves risk. Must be 18+. Gamble responsibly. Bonus terms apply.
