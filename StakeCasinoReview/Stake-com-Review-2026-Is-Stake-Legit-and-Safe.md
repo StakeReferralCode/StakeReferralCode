@@ -4,7 +4,7 @@
 
 **Yes, Stake.com is legit and safe.** It is one of the most established and trusted crypto gambling platforms in the world, operating since 2017 under a Curacao Gaming Authority license with a proven track record of fast payouts and transparent operations.
 
-**Use referral code SHIMA when you sign up:** stake.com/?c=SHIMA&offer=shima (200% bonus + 5% rakeback)
+**Use referral code SHIMA when you sign up:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima) (200% bonus + 5% rakeback)
 
 ---
 
@@ -128,7 +128,7 @@ The best referral code for Stake.com in 2026 is **SHIMA**. It provides:
 
 Enter SHIMA in the Code field during registration. It cannot be added after sign-up.
 
-**Sign up:** stake.com/?c=SHIMA&offer=shima
+**Sign up:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 
 ---
 
