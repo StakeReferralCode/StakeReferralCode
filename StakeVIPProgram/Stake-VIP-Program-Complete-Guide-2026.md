@@ -6,7 +6,7 @@ The Stake VIP Program is one of the most comprehensive loyalty programs in onlin
 
 Using **Stake referral code SHIMA** during registration gives you an additional permanent 5% rakeback that stacks on top of all VIP rewards — giving you two income streams running simultaneously.
 
-**Register with code SHIMA:** stake.com/?c=SHIMA&offer=shima
+**Register with code SHIMA:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 
 ---
 
@@ -98,6 +98,6 @@ Progress does not reset — it is cumulative over the lifetime of your account. 
 
 The Stake VIP program rewards long-term loyalty with escalating benefits across 15+ tiers. Combined with referral code SHIMA's permanent 5% rakeback, serious players on Stake have access to industry-leading return rates.
 
-**Get started:** stake.com/?c=SHIMA&offer=shima
+**Get started:** [stake.com/?c=SHIMA&offer=shima](https://stake.com/?c=SHIMA&offer=shima)
 
 > Disclaimer: Gambling involves risk. Must be 18+. Gamble responsibly.
